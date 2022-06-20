@@ -4,6 +4,7 @@
 
 Este catálogo ha sido creado por el usuario xlRaiko y todos los derechos y copy le pertenecen a él.
 Por favor, dejen marcado el propietario del catálogo cuando lo instalen en su Habbo Hotel para dar visibilidad de su creador.
+Además, este catáogo es el más grande habla hispana hasta la fecha, el cual esta mejor trabajado que cualquier otro del momento.
 
 Este catálogo es totalmente gratuito, espero que entiendan que al menos los derechos deben ser reconocidos.
 
