@@ -1,5 +1,5 @@
 # ==========================
-Catalogo-Arcturus-Habbo
+# Catalogo-Arcturus-Habbo
 # ==========================
 
 Este catálogo ha sido creado por el usuario xlRaiko y todos los derechos y copy le pertenecen a él.
