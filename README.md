@@ -23,7 +23,7 @@ Contenido del catálogo:
 
 - Variedad de dados, un total de 24 dados customs más los dos oficiales.
 
-============================================================================
+===========================================================================
 
 Además, contiene catálogo ordenado y estructurado de forma eficiente, de tal forma que te resulte fácil buscar las secciones. Incluso contiene buscador de furnis arreglado.
 
